@@ -990,3 +990,12 @@ We are here to help you and manke yout work 7 expense less and profit double,my 
 </body>
 </html>
 ![mj](https://github.com/BadalKumarMishra-123/portfolio-mjmarketingconsultancy/assets/146050052/f381a059-accd-4467-bff2-4af491e82124)
+
+
+
+            ( Portfolio link) 
+
+
+
+
+https://www.linkedin.com/posts/badal-kumar-mishra-261059292_html-css-bootstrap-activity-7125121569105805316-qXvD?utm_source=share&utm_medium=member_android    
